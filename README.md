@@ -1,5 +1,5 @@
 # 💫 About Me:
->Lead Developer @ Duckie Bot<br> Bot Reviewer @ Top.gg<br> Manager @ Detaility.com<br> Developer @ Stuffig.com<br> Creator @ Betterlog.js
+>Staff Team @ Wild Hunter<br> Bot Reviewer @ Top.gg<br> Manager @ Detaility.com<br> Developer @ Stuffig.com<br> Creator @ Betterlog.js
 
 
 ## 🌐 Socials:
